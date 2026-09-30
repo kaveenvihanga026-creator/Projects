@@ -32,7 +32,8 @@ All my designs and projects are uploaded in this repository.
 ### 📫 Connect With Me
 - GitHub: [@kaveenvihanga026-creator](https://github.com/kaveenvihanga026-creator)
 - Email: kaveenvihaga024@gmail.com
+- Linkedin:https://www.linkedin.com/in/kaveen-vihanga-9a5349436
 - Location: Gampaha, Sri Lanka
 
 ---
-⭐ *Thank you for visiting my portfolio! Open to internship opportunities at Mintleaf and other creative companies.*
+⭐ *Thank you for visiting my portfolio! Open to internship opportunities at creative companies.*
